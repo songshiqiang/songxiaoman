@@ -11,6 +11,8 @@ https://mlink.cc/songxiaoman?utm_source=user_profile_share
 
 https://onee.page/songxiaoman
 
+https://joy.bio/songxiaoman
+
 # 工具
 
 https://pngtowebp.info
